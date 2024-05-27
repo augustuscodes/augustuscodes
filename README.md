@@ -2,7 +2,7 @@
 - 👀 I’m interested in ML/AI
 - 🌱 I’m currently learning Programing languages/ML
 - 💞️ I’m looking to collaborate on Projects related to AI/ML
-- 📫 How to reach me Hit me up on g-mail- @augustuscodes@gmail.com
+- 📫 How to reach me Hit me up on g-mail - @augustuscodes@gmail.com
 - 😄 Pronouns: HE/HIM
 - ⚡ Fun fact: I AM A BEGINNER,as of 2024.
 
